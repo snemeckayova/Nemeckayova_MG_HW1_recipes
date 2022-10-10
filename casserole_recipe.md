@@ -5,7 +5,7 @@
 - 2 (10 ounce) cans tuna, drained
 - 4 cups hot cooked medium egg noodles
 - 2 tablespoons dry bread crumbs
-- 1 tablespoon butter, melted
+- 1 tablespoon butter, softened
 
 # Directions
 - Stir soup, milk, peas, tuna and noodles in 3-quart casserole.
